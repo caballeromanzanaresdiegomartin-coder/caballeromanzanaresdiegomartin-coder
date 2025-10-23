@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🖋️**creador de contenido
+🖋️**creador de contenido**
 🖥️**programador web junior**
 ⚽**futbolista**
 🍹**bartender**
