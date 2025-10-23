@@ -7,4 +7,4 @@
 ☕**barista**
 🤵**camarero**
 
-🎶**cancion de culto: viva la vida, coldaplay**
+🎶**cancion de culto: viva la vida, coldaplay.**
